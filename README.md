@@ -1,6 +1,1 @@
-## Hi there 👋
-BANUMURTHY R
-MASTERS IN computer application,
-PYTHON developer // database(mysql) // core JAVA(beginner) passionate about PYTHON coding and learn new thinks in technology...!
-open to work and looking for job!!
-
+https://teams.microsoft.com/l/meetup-join/19%3ameeting_MGRiZjQyMjItZDU3Ni00ZDU5LThkMWEtYjYzNGFhOTQ4MDUy%40thread.v2/0?context=%7b%22Tid%22%3a%223beb4f46-547f-4b84-b6de-8ca8fd437086%22%2c%22Oid%22%3a%22c3f28b1f-fe6a-4a36-be88-a7542a2563a7%22%7d
